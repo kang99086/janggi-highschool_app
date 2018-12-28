@@ -1,1 +1,1 @@
-애들아 어플 만들자!
+hey bro, let`s make app together.
