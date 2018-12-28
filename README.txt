@@ -1,1 +1,1 @@
-hey bro, let`s make app together.
+let`s make a application together.
